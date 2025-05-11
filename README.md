@@ -2,7 +2,7 @@
 - 👀 I’m interested in Coding
 - 🌱 I’m currently learning Web Devlopment
 - 💞️ I’m looking to collaborate on any type of content related to web devlopment 
-- 📫 Conact Me On E-mail : rathoddhruv1314@gmail.com
+- 📫 Conact Me On Instagram : real._.dhruv
 - 😄 Pronouns: Dhruv
 - ⚡ Fun fact: Love Coding 
 
